@@ -3,8 +3,8 @@
 
 **Participantes**
 
-- María Liliana Alzate Hincapié — CC 1128430285
-- Adrián Arango Salas — CC 1128450674
+- María Liliana Alzate Hincapié 
+- Adrián Arango Salas
 
 ---
 
